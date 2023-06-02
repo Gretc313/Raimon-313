@@ -4,4 +4,5 @@
 - [фотограф](https://vk.com/raimon.photo)
 - учусь в удовольствие
 
-![это я](https://sun9-75.userapi.com/impg/JarNwP4qot11EWNinSINBlsZQt3z48RKmda4gw/FpRZJjkYXzQ.jpg?size=853x1280&quality=96&sign=e53035d07c89501a8679788e56669ab5&type=album)
+
+![это я](https://github.com/Gretc313/Raimon-313/assets/126319425/fb12e048-a4a6-463e-b7ff-6e5ab6b9626f)
